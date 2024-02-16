@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ev1lMiner
-- 👀 I’m interested in ...WEB3 and yeld   
+- 👀 I’m interested in ...WEB3 and Liqudity pool LST /FI/restake ETH /Farming passive/
 - 🌱 I’m currently learning ...Tendermint
 - 💞️ I’m looking to collaborate on ...COSMOS ecosystem
 - 📫 How to reach me ...telegram link - @crypto4utep
